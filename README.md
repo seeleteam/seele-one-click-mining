@@ -1,0 +1,1 @@
+# seele-one-button-mining
